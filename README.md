@@ -5,3 +5,5 @@ Tyler  ‿  7teen ୨୧ Tims bf.
 anti harassment + censorship. protective of certain chars or interests. 
 <img width="385" height="20" alt="Untitled1108_20250908074317" src="https://github.com/user-attachments/assets/bc35f92a-901e-4f30-aa77-74a3a633eb52" />
 tim 'dbls' + shippers + irls/kins/ect dni.
+<img width="385" height="20" alt="Untitled1108_20250908074317" src="https://github.com/user-attachments/assets/5e22f713-1f3a-4bf7-9ab2-698610464423" />
+i temp hide timkon duos. or tim ship duos, unless you sit in it often then i will perma hide. i also perma hide fictkins, irls, or others related to previously stated. 
